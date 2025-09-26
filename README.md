@@ -44,8 +44,8 @@
 ## 📫 Контакты
 - Telegram: [@mbaizakov](https://t.me/mbaizakov)  
 - WhatsApp: [wa.me/77084252040](https://wa.me/77084252040)  
-- Email: malik.baizakov@gmail.com  
-
+- Email: malik.baizakov@gmail.com
+- https://t.me/mbaizakov
 ---
 
 ⚡ **Моё позиционирование:**  
